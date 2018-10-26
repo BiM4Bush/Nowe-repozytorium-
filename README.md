@@ -1,3 +1,3 @@
 # Nowe-repozytorium-
 Na zajeciach
-qwerty asdqwe
+Pierwsza zmiana
