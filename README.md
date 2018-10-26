@@ -1,3 +1,3 @@
 # Nowe-repozytorium-
 Na zajeciach
-qwerty asdqwe
+qwerty asdqwe sdfasdfawerqwefghsfghf 
